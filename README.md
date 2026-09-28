@@ -1,0 +1,2 @@
+# premium-acid-damascene-001-acid-etch-damascene-resist-g
+You've mastered the technical craft of acid etching and damascene work, but juggling process notes, resist formulas, gold treatment specs, and design iterations across scattered documents is killing your creative flow. The Acid Etch Damascene &amp; Resist Gold Craft Hub consolidates everything you need into one organized, beautifully designed Notion wo
